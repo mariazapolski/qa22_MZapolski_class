@@ -1,0 +1,1 @@
+# qa22_MZapolski_class
